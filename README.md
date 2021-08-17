@@ -7,10 +7,10 @@
 
 ## An aspiring entreprener, also a quick-witted freelancer!!
 
-- 💞️ I’m living in a dream world , with full of positive vibe 
+- 💞️ Living my dream, with positive vibes
 - 👀 I’m interested in developing softwares ,learn and explore new things
 - 🥅 2021 Goals: Level up software development skills
-- 🌱 I’m currently learning flutterflow , it's really cool right?😉
+- 🌱 I’m currently learning flutterflow, it's really cool right? 😉
 - ⚡ Fun fact: I love to sing a song for everyone ( also for me), go for a drive and also CODE
 - 💬 Ask me about what's happening in Kochi, that's my native place.
 
