@@ -5,7 +5,7 @@
 [![Commits Badge](https://badges.pufler.dev/commits/monthly/sangeethasr)](https://badges.pufler.dev)
 
 
-## An aspiring entreprener, also a quick-witted freelancer!!
+## An aspiring entreprener and a quick-witted freelancer!!
 
 - 💞️ Living my dream, with positive vibes
 - 👀 I’m interested in developing softwares ,learn and explore new things
